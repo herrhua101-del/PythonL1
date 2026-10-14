@@ -8,7 +8,7 @@ This is the mother river in China
 Huang river and Qiantang River
 
 # Link to the river
-[Find in] https://baike.baidu.com/item/%E9%95%BF%E6%B1%9F/388
+https://baike.baidu.com/item/%E9%95%BF%E6%B1%9F/388
 
 # Description of the river
 长江，中国境内太平洋水系河流， [10]发源于青海省西南部、青藏高原上的唐古拉山脉主峰各拉丹冬雪山，曲折东流，干流先后流经青海、四川、西藏、云南、重庆、湖北、湖南、江西、安徽、江苏、上海共11个省、自治区和直辖市，最后注入东海。全长6363千米 [16]（一说有6236千米，一说6380千米，一说6397千米，一说 6403千米，一说6300余千米 [66]）。是中国、亚洲第一大河，全球第三长河流。 [70]
